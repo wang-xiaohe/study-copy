@@ -1,1 +1,1 @@
-# study-copy
+# study
